@@ -1,5 +1,5 @@
 ## About Me
-Currently, I am a Senior at Morgan State University, located in Baltimore, Maryland. I am pursuing a Bachelor’s degree in Computer Science. My expected graduation date is in 2025.
+Currently, I am a graduate from Towson University who earned a B.S. degree in Business Systems and Processes (BSAP) along with an Accounting minor. I am currently partaking in the 2024 CEAMLS Summer AI Research Institute and eager to land a full time job related to my field of study post internship.
 
-[Linkedin Profile](https://www.linkedin.com/in/michael-adeleke-4a1228217/)
+[Linkedin Profile](https://www.linkedin.com/in/alieu-camara-2b2716221/)
 
